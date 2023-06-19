@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Nazeem Siddique</h1>
-<h3 align="center">A passionate frontend developer from Daman.</h3>
+<h3 align="center">A passionate web developer from Daman.</h3>
 
 
 
