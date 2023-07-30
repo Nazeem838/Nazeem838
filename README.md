@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **siddiquenazeem9@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Pt2HCVy-JM2Kxo2n8Sggpoh3zicPv_0o/view?usp=share_link](https://drive.google.com/file/d/1Pt2HCVy-JM2Kxo2n8Sggpoh3zicPv_0o/view?usp=share_link)
+- 📄 Know about my experiences [Nazeem Siddique Resume](https://drive.google.com/file/d/1OkiVrrLRBWcNtev6UWn7oG4cH5mNtEBF/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
