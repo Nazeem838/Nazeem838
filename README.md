@@ -3,7 +3,7 @@
 
 
 
-- 🌱 I’m currently learning **React.js and Node**
+- 🌱 I’m currently learning **React Nativ**
 
 - 📫 How to reach me **siddiquenazeem9@gmail.com**
 
